@@ -7,8 +7,8 @@ buenos dias
 
 ![wakamoles](https://www.enciclopediadegastronomia.es/fotos/613_guacamoles.jpg)
 
-* sdfsdf
-* sgsdsg
+* frutas ricas*
+* *manzanas no gustan**
 
-1. yjhrt
-2. yhyhry
+1. trabajo :
+2. hecho por abel
